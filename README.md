@@ -1,4 +1,4 @@
-RinR1nMC aka AnZeta
+RinR1nMC aka AnZeta \n
 Hello, I provide minecraft server setups for everyone. I always want to make sure that my setup is the greatest!
 
 - Joined Minecraft Setup Community on 2021/12
